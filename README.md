@@ -1,1 +1,1 @@
-# Pause-Ponder
+# Pause-and-Ponder
